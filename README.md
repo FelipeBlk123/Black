@@ -1,1 +1,1 @@
-# Blk is a god of games is a monster in your hade i make your prision AND DESTROY YOUR MIND
+# just two words and you're looking at me like you want to kill me
